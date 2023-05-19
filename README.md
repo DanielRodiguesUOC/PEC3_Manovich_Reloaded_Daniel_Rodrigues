@@ -13,7 +13,7 @@ Fecha:  19/05/2023
  
 ![Cultura Digital](https://img.freepik.com/vector-gratis/videoconferencia-trabajo-remoto-ilustracion-pantalla-plana-portatil-grupo-colegas-personas-conectadas_88138-548.jpg)
 
-##  Re-descubriendo la hibridacion: 
+##  Re-descubriendo la hibridacion: Spotify 
 
 ![Cultura Digital](https://logodownload.org/wp-content/uploads/2020/03/listen-on-spotify.png)
 
