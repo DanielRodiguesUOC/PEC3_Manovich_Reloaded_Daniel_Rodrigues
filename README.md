@@ -10,9 +10,11 @@ Fecha:  19/05/2023
 
  Hoy en día el ser humano se dedica a una constante evolución de los procesos que lo rodean. Remediamos los medios antiguos y generamos procesos nuevos para un obtener un resultado similar pero de manera digitalizada. Hemos pasado de esta leyendo el periódico como tradicionalmente se hacia mediante los diarios, a que  con solo un clic o desde nuestro dispositivo móvil poder saber lo que pasa en el mundo con los periódicos digitales. 
  Cuando  dos o mas de estos medios se unen se crea un proceso de hibridación de medios, la cual combina varios medios multimedia  en uno solo. En este texto vamos a hablar de dos casos muy interesantes sobre la hibridación de medios.
+ 
 ![Cultura Digital](https://img.freepik.com/vector-gratis/videoconferencia-trabajo-remoto-ilustracion-pantalla-plana-portatil-grupo-colegas-personas-conectadas_88138-548.jpg)
 
-##  Re-descubriendo la hibridacion: Spotify
+##  Re-descubriendo la hibridacion: 
+
 ![Cultura Digital](https://logodownload.org/wp-content/uploads/2020/03/listen-on-spotify.png)
 
 
